@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Sreehari GS!
+- 👋 Hi, I’m Sreehari!
 - 👀 I’m interested in basically everything tech!
 
 
